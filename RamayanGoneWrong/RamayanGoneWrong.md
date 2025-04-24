@@ -246,6 +246,11 @@ A murmur of agreement rippled through the assembled faces, some nodding, others 
 
 She paused, letting the weight of her words settle. Eyes flickered with hope, fear, and ambition. The seeds of rebellion were sown.
 
+## Whispers in the Halls
+
+Ram heard the whispers before he saw the faces. Courtiers turned away, eyes clouded with doubt. Surpanakha’s stories were poison, seeping into every corner.
+
+Kind to her? Ram thought bitterly. Estranged from Bharath and Lakshman? The truth is darker.
 
 ## Midnight Confidant
 
@@ -256,26 +261,6 @@ He did not serve the crown alone. He served the man beneath it. Ram. The kindnes
 Hanuman whispered to himself, barely more than breath, “The house may rot, but the heart still beats true.”
 
 That night, as whispers curled like smoke through the halls, Hanuman slipped a folded note beneath Ram’s door. A small act of faith in a world unraveling.
-
-## Whispers in the Halls
-
-Ram heard the whispers before he saw the faces. Courtiers turned away, eyes clouded with doubt. Surpanakha’s stories were poison, seeping into every corner.
-
-Kind to her? Ram thought bitterly. Estranged from Bharath and Lakshman? The truth is darker.
-
-## The Great Hall
-
-The oil lamps guttered. Shadows licked the walls like tongues. Ram's knuckles whitened against the pillar. The carvings bit into his palm—lotuses swallowing their own stems.
-
-Raavani's throne gleamed dull as an old knife. She leaned forward, her breath sour with betel nut. "Truth is what survives," she said. Her gold collar pressed into her neck like a noose.
-
-Ram's ribs creaked. The pain was a living thing now, curled behind his breastbone. "Lies make poor foundations."
-
-Kumbhini toyed with her hairpin. The point glinted. "Says the man whose house crumbles."
-
-Surpanakha’s eyes flicked to Kausalya’s portrait—the artist had captured the vein bulging at her temple, a frozen echo of worry long passed. "Your son spits at your brother's shadow," she said. "Your wife laughs behind her hand. What truth sustains you?"
-
-The garland over Ram's head shed petals. One stuck to his sweat-slick neck. Ram’s vision blurred at the edges, the weight of the garland heavy on his neck, petals falling like silent accusations
 
 ## The Night Cough
 
@@ -291,12 +276,28 @@ Ram wiped his mouth. "Dead men sleep."
 
 She left. The room kept the iron smell. His father’s sheets had reeked the same.
 
-
 ## The Neem Tree
 
 Alone beneath the tree, Ram pressed his palm to the bark. The ridges matched the lines on his palm. Somewhere, Luv practiced with a steel blade now. The clang of metal carried further than wood ever had.
 
 Ram's fingers dug into his ribs. The house was full. He was alone.
+
+
+## The Great Hall
+
+The oil lamps guttered. Shadows licked the walls like tongues. Ram's knuckles whitened against the pillar. The carvings bit into his palm—lotuses swallowing their own stems.
+
+Raavani's throne gleamed dull as an old knife. She leaned forward, her breath sour with betel nut. "Truth is what survives," she said. Her gold collar pressed into her neck like a noose.
+
+Ram's ribs creaked. The pain was a living thing now, curled behind his breastbone. "Lies make poor foundations."
+
+Kumbhini toyed with her hairpin. The point glinted. "Says the man whose house crumbles."
+
+Surpanakha’s eyes flicked to Kausalya’s portrait—the artist had captured the vein bulging at her temple, a frozen echo of worry long passed. "Your son spits at your brother's shadow," she said. "Your wife laughs behind her hand. What truth sustains you?"
+
+The garland over Ram's head shed petals. One stuck to his sweat-slick neck. Ram’s vision blurred at the edges, the weight of the garland heavy on his neck, petals falling like silent accusations
+
+
 
 
 ## The Collapse
