@@ -19,13 +19,11 @@ Ram’s gaze softened as he watched Luv swing his sword at the fading light. “
 
 Surpanakha turned away, her smile thin. “And your family’s tongue. Bharath told him kings don’t play with toys.”
 
-Ram’s chest tightened. Bharath had given the sword himself, a gift meant to bind the boy to his uncles. But Surpanakha’s words planted a seed of doubt, a shadow between Ram and his brothers.
-
----
+Ram’s chest tightened. Bharath had given the sword himself, a gift meant to bind the boy to his uncles.
 
 ## The Jewelry Chest
 
-Kausalya’s fingers trembled as she lifted the heavy lid of the ancient chest. Inside, generations of queens’ gold lay tarnished but proud—necklaces, bangles, earrings, each piece a story.
+Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
 
 Surpanakha’s eyes flickered to a ruby choker, its stones catching the lamplight like drops of blood.
 
@@ -39,7 +37,6 @@ Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. �
 
 Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
----
 
 ## The Empty Moral: Raavani household
 
@@ -68,8 +65,6 @@ Ram watched the river swallow the shaft. "And you not enough."
 
 
 
----
-
 ## The Empty House
 
 The evening meal was quiet. Kausalya sat apart, her eyes distant, watching Surpanakha with a mixture of hope and suspicion. Bharath and Lakshman exchanged glances over their plates, their silence louder than any words. Shanta, ever the observer, traced patterns in the rice with her fingers, her face unreadable.
@@ -97,8 +92,6 @@ The boy’s grip tightened on his wooden sword, his small face set with fierce d
 Ram watched from the doorway, his heart heavy. The house was full, but he was alone.
 
 
----
-
 ## The Coughing
 
 Blood stained Kausalya’s handkerchief—dark, like crushed hibiscus petals pressed between old pages. Her breath came ragged, each cough a slow unraveling, as if the cells inside her were turning to dust, breaking down quietly, unseen.
@@ -111,9 +104,12 @@ Ram’s heart clenched. Somewhere inside, a part of him was rotting too—his ol
 
 By dusk, the servants whispered in hushed tones. The queen’s sickness was no secret now. It was a slow rot, a shadow growing in the house—and in Ram’s heart.
 
+
+---
+
 # Chapter 2: The Fractured Bonds
 
-## Scene 1: The Gift
+## The Gift
 
 Bharath placed the dagger on the table. Pearl handle, like Ram’s crown.
 
@@ -135,7 +131,7 @@ By dusk, Luv carried a different knife —one Surpanakha'sister had given him. I
 
 But beneath the surface, other fires burned.
 
-## Scene 2: The Web of Rumors
+## The Web of Rumors
 
 In the dim light of Raavani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
 
@@ -152,7 +148,7 @@ The three women exchanged glances, their unspoken plans weaving like threads in 
 The past was never far. It lingered in shadows, shaping the present with silent hands.
 
 
-## Scene 3: Shadows of the Past
+## Shadows of the Past
 
 The firelight flickered against cold stone walls. A young Surpanakha sat cross-legged, eyes wide but hardening. Raavani’s voice cut through the silence, smooth and sharp as a blade.
 
@@ -167,7 +163,7 @@ Alone in her chamber, Raavani traced the cracked frame of her late husband’s p
 The weight of the crown pressed heavy on her shoulders, but her resolve was iron. The past was a ghost, but the future was hers to command.
 
 
-## Scene 3: The Spider's Web
+## The Spider's Web
 
 The poison spread swiftly. In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani's throne creaked as she leaned forward. Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
@@ -187,9 +183,8 @@ Raavani rose. Her shadow swallowed them all. "Your husband died begging for a so
 
 The dagger clattered to the floor. Kaikesi's knees followed.
 
----
 
-## Scene 4: Berries and Blades
+## Berries and Blades
 
 Ram found Surpanakha crushing blackberries between her fingers. The dark juice seeped down her wrists, staining her skin like old blood—an echo of the queen’s handkerchief, pressed tight in memory. The scent was sharp, sour, like secrets rotting beneath the surface.
 
@@ -204,9 +199,7 @@ Ram’s calloused hand caught her wrist. Her pulse fluttered beneath his grip, q
 “Poor girls,” Surpanakha said, voice soft but edged with something darker. “Though Kumbhini did always enjoy... performances.”
 
 
----
-
-## Scene 5: Midnight Shadows
+## Midnight Shadows
 
 Later, beneath the cold moonlight, Lakshman and Bharath stood in the quiet courtyard. The night air was thick with unspoken fears.
 
@@ -222,8 +215,6 @@ The silence stretched between them, heavy as the night.
 
 
 
----
-
 ## Scene 6: The Messengers
 
 Torches guttered in the courtyard as Raavani's envoys bowed. Their leader's smile didn't reach his eyes.
@@ -237,6 +228,7 @@ The smile vanished. "You call our princess a whore?"
 Ram’s jaw tightened. He did not blink. “I call a fig a fig.” Ram's hand went to his chest. The pain was new—sharp as Kaikesi's gaze burning into his back.
 
 
+---
 
 # Chapter 3: The Heart's Reckoning
 
@@ -296,7 +288,6 @@ Ram wiped his mouth. "Dead men sleep."
 
 She left. The room kept the iron smell. His father’s sheets had reeked the same.
 
----
 
 ## The Neem Tree
 
