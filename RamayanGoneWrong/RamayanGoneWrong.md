@@ -38,15 +38,17 @@ Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. �
 Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
 
-## The Empty Moral: Raavani household
+## Raavani household
 
-Far from Ayodhya, in the shadowed halls, Raavani sat like a queen on a throne of silence. Kaikesi, her eldest, stood nearby, her face pale and drawn. The portrait of her late husband hung crooked on the wall, a silent witness to a life ended too soon. His heart had failed him, crushed beneath the weight of Raavani's schemes. 
+Far from Ayodhya, in the shadowed halls, mother of Surpanakha, Raavani sat like a queen on a throne of silence. She looked at her ring,a gift from her mother. 
+
+Kaikesi, her eldest, stood nearby, her face pale and drawn. The portrait of her late husband hung crooked on the wall, a silent witness to a life ended too soon. His heart had failed him. 
 
 Her younger daughters, Kumbhini and Tadaka, moved around her like restless shadows, their eyes sharp and calculating.
 
 Raavani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has fotgotten us"
 
-Kumbhini smiled, but it did not reach her eyes. “They say Ayodhya is weak. That Ram is soft.”
+Kumbhini smiled, slow, deliberate. “They say Ayodhya is weak. That Ram is soft.”
 
 Kaikesi’s gaze sharpened. “Softness is a lie. Strength is control.”
 
@@ -54,9 +56,15 @@ The daughters exchanged glances, their unspoken plans weaving like threads in th
 
 ## The River
 
-Back in Ayodhya,The river choked on monsoon mud. Lakshman's bowstring creaked as he drew it taut. "She's turning Luv against us."
+Back in Ayodhya,The river ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
-Ram scrubbed his hands in the current. The silt stung his nails. "Time heals."
+Behind him, Lakshman drew his bow. The string creaked.
+
+“She’s spreading lies,” Lakshman said. “Says Ram trusts her family. Says the brothers are at each other’s throats.”
+
+Ram looked up. “You speak like a son.” Lakshman did not answer. He knew.
+
+“Time heals,” Ram said. “Only trust and love can fix a broken soul.”
 
 "Not poison." Lakshman loosed the arrow. It vanished in the swirling water. "You're too trusting."
 
@@ -64,32 +72,28 @@ Ram watched the river swallow the shaft. "And you not enough."
 
 
 
-
 ## The Empty House
 
-The evening meal was quiet. Kausalya sat apart, her eyes distant, watching Surpanakha with a mixture of hope and suspicion. Bharath and Lakshman exchanged glances over their plates, their silence louder than any words. Shanta, ever the observer, traced patterns in the rice with her fingers, her face unreadable.
+The evening meal was quiet. Kausalya sat apart, watching Surpanakha with a mix of hope and doubt.
 
-Later, in the dim light of the inner chamber, Surpanakha spoke softly to Ram. “Your mother wonders if you have lost your way. She says you are blind to the truth.”
+Bharath and Lakshman ate in silence. Their plates held the same food, but Surpanakha poured spiced buttermilk for Ram and water for the others.
 
-Ram’s hands rested on his knees, steady but tired. “Truth is not always loud,” he said. “Sometimes it is a whisper beneath the noise.”
+Shanta traced circles in her rice. Her face was unreadable.
 
-She leaned closer, her breath a faint scent of jasmine and something sharper. “Your brothers think you weak. Lakshman warned you, but you would not listen.”
+Later, in the dim room, Surpanakha spoke softly to Ram.
+
+“Your mother wonders if you’ve lost your way. Says you don’t see.”
+
+Ram’s hands rested on his knees. “Truth is quiet. It hides beneath noise.”
+
+She leaned close. Her breath smelled of jasmine and something sharp.
+
+“Your brothers think you weak. Lakshman warned you. You didn’t listen.”
 
 Ram’s eyes met hers, searching. “I listen to my heart.”
 
 Behind the closed door, the palace murmured with secrets. Whispers of doubt, scandal, a king who had chosen the wrong bride.
 
-
-
-## The Web of Lies
-
-Ram’s isolation grew. Surpanakha’s stories spread like wildfire, painting him as indulgent, blind, and weak, creating stories of the rift among brothers. Kausalya’s visits grew less frequent, Bharath’s greetings colder, Lakshman’s warnings sharper.
-
-One evening, Surpanakha whispered to Luv as he lay in bed, “Your uncles think you weak. They do not see your fire.”
-
-The boy’s grip tightened on his wooden sword, his small face set with fierce determination.
-
-Ram watched from the doorway, his heart heavy. The house was full, but he was alone.
 
 
 ## The Coughing
@@ -129,7 +133,8 @@ Ram saw the turned earth at dawn. Touched it. Walked away.
 
 By dusk, Luv carried a different knife —one Surpanakha'sister had given him. Its edge was sharper than a boy needed.
 
-But beneath the surface, other fires burned.
+Whispers had begun. Bharath’s gift was cold. His care, questioned.
+
 
 ## The Web of Rumors
 
@@ -156,7 +161,7 @@ The firelight flickered against cold stone walls. A young Surpanakha sat cross-l
 
 Surpanakha nodded, the lesson burning into her like a brand. The world was a battlefield, and she would learn to fight with every shadow and lie.
 
-Alone in her chamber, Raavani traced the cracked frame of her late husband’s portrait. Her fingers lingered on the painted eyes—cold, watchful, unyielding.
+Alone, Raavani traced the cracked frame of her late mothers’s portrait. Her fingers lingered on the painted eyes—cold, watchful, unyielding.
 
 “You taught me to survive,” she whispered, voice soft but fierce. “Now I must teach them.”
 
@@ -165,13 +170,11 @@ The weight of the crown pressed heavy on her shoulders, but her resolve was iron
 
 ## The Spider's Web
 
-The poison spread swiftly. In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani's throne creaked as she leaned forward. Her voice, like Surpanakha’s, was a blade wrapped in silk.
+The poison spread swiftly. In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani's throne creaked as she leaned forward. 
+
+Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
 "Ayodhya grows fat on our neglect." Her voice was oil on water. "Ram is a fool. Their coffers overflow."
-
-Raavani stood motionless. The portrait of her dead husband watched from the wall—his eyes widened by the painter per her request.
-
-"They've done no harm," she said.
 
 Kumbhini's laugh shattered the silence. She twirled a dagger between her fingers. "Harm? Shall I show you where Bharath touched me?" Her free hand tugged at her neckline, revealing unblemished skin.
 
@@ -186,7 +189,7 @@ The dagger clattered to the floor. Kaikesi's knees followed.
 
 ## Berries and Blades
 
-Ram found Surpanakha crushing blackberries between her fingers. The dark juice seeped down her wrists, staining her skin like old blood—an echo of the queen’s handkerchief, pressed tight in memory. The scent was sharp, sour, like secrets rotting beneath the surface.
+Back in Ayodhya, Ram found Surpanakha crushing blackberries between her fingers. The dark juice seeped down her wrists, staining her skin like old blood—an echo of the queen’s handkerchief, pressed tight in memory. The scent was sharp, sour, like secrets rotting beneath the surface.
 
 Luv’s sword struck the bush. A thorn tore his palm. He didn’t flinch.
 
@@ -214,10 +217,9 @@ Bharath’s gaze flicked toward the palace windows, where shadows moved like gho
 The silence stretched between them, heavy as the night.
 
 
+## The Messege
 
-## Scene 6: The Messengers
-
-Torches guttered in the courtyard as Raavani's envoys bowed. Their leader's smile didn't reach his eyes.
+Torches guttered in the courtyard as Raavani's envoys bowed. 
 
 "Bharath's crimes demand blood," she said. The gold in his teeth caught the light.
 
@@ -243,6 +245,7 @@ A murmur of agreement rippled through the assembled faces, some nodding, others 
 “A kingdom divided cannot stand,” Surpanakha continued. “We offer a new path—strength through unity under Raavani’s line.”
 
 She paused, letting the weight of her words settle. Eyes flickered with hope, fear, and ambition. The seeds of rebellion were sown.
+
 
 ## Midnight Confidant
 
