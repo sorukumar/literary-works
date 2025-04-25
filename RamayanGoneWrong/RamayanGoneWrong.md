@@ -54,15 +54,16 @@ Kaikesi’s gaze sharpened. “Softness is a lie. Strength is control.”
 
 The daughters exchanged glances, their unspoken plans weaving like threads in the dark.
 
-## The River
 
-Back in Ayodhya,The river ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
+## At the bank of Sarayu River
+
+Back in Ayodhya,Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
 Behind him, Lakshman drew his bow. The string creaked.
 
-“She’s spreading lies,” Lakshman said. “Says Ram trusts her family. Says the brothers are at each other’s throats.”
+“Surpanakha is spreading lies,” Lakshman said. “Says Ram trusts her family. Says the brothers are at each other’s throats.”
 
-Ram looked up. “You speak like a son.” Lakshman did not answer. He knew.
+Ram looked up. “You are my life.” He paused. “More than my own.” Lakshman did not answer. He knew.
 
 “Time heals,” Ram said. “Only trust and love can fix a broken soul.”
 
@@ -88,7 +89,7 @@ Ram’s hands rested on his knees. “Truth is quiet. It hides beneath noise.”
 
 She leaned close. Her breath smelled of jasmine and something sharp.
 
-“Your brothers think you weak. Lakshman warned you. You didn’t listen.”
+“Your brothers think you weak. Lakshman doesn't respect you. Bharath is eyeing the crown.”
 
 Ram’s eyes met hers, searching. “I listen to my heart.”
 
@@ -100,9 +101,13 @@ Behind the closed door, the palace murmured with secrets. Whispers of doubt, sca
 
 Blood stained Kausalya’s handkerchief—dark, like crushed hibiscus petals pressed between old pages. Her breath came ragged, each cough a slow unraveling, as if the cells inside her were turning to dust, breaking down quietly, unseen.
 
-She sat by the window, pale light falling on her skin that seemed thinner each day, as if the sickness was eating her from the inside out. Ram watched, helpless, feeling the weight of something breaking in the air between them.
+She sat by the window, pale light falling on her skin that seemed thinner each day, as if the sickness was eating her from the inside out. 
 
-Her fingers found his cheek, cold and trembling. Her eyes held a quiet sorrow, deep and endless. She whispered, voice cracked like dry earth,“You walk a blade’s edge—between the duty to your wife, the duty to your blood, and the duty to justice itself. Hold fast to one, and the others will burn you alive.”
+Ram watched, helpless, feeling the weight of something breaking in the air between them.
+
+Her fingers found his cheek, cold and trembling. Her eyes held a quiet sorrow, deep and endless.
+
+She whispered, voice cracked like dry earth, “You walk a blade’s edge — duty to wife, duty to blood, duty to justice. Cling to one, the others burn you.” Her eyes held him. “ And beware, my son, lies twist even strong minds. Truth is your shield. It breaks easy.”
 
 Ram’s heart clenched. Somewhere inside, a part of him was rotting too—his old ideals, the sharp edges of his conscience dulling like forgotten bones buried beneath the soil. He wanted to fight, to hold on, but the decay was slow and patient, creeping through his spirit like a shadow.
 
@@ -155,9 +160,13 @@ The past was never far. It lingered in shadows, shaping the present with silent 
 
 ## Shadows of the Past
 
-The firelight flickered against cold stone walls. A young Surpanakha sat cross-legged, eyes wide but hardening. Raavani’s voice cut through the silence, smooth and sharp as a blade.
+The firelight flickered against cold stone walls. A young Surpanakha sat cross-legged, eyes wide but hardening. 
+
+Raavani’s voice cut through the silence, smooth and sharp as a blade.
 
 “Win by any means,” she said, her breath a whisper of steel. “Mercy is a weakness. Power is the only truth.”
+
+She leaned closer, her shadow falling over Surpanakha. “Swords are for men who cannot think. A woman’s weapon is her mind. Words cut deeper than steel, and lies last longer than wounds. Let the men play with their arrows. We will shape the world with whispers.”
 
 Surpanakha nodded, the lesson burning into her like a brand. The world was a battlefield, and she would learn to fight with every shadow and lie.
 
@@ -170,21 +179,21 @@ The weight of the crown pressed heavy on her shoulders, but her resolve was iron
 
 ## The Spider's Web
 
-The poison spread swiftly. In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani's throne creaked as she leaned forward. 
+In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani’s throne groaned as she leaned forward. 
 
 Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
-"Ayodhya grows fat on our neglect." Her voice was oil on water. "Ram is a fool. Their coffers overflow."
+“Ayodhya’s lamps burn bright,” she said. “We cast the shadow. Ram sits on his lotus. He does not see the rot. Their coffers swell. Their roots crack.”
 
-Kumbhini's laugh shattered the silence. She twirled a dagger between her fingers. "Harm? Shall I show you where Bharath touched me?" Her free hand tugged at her neckline, revealing unblemished skin.
+Kumbhini's laugh shattered the silence. She twirled a dagger between her fingers. “Bharath thinks he can touch what he wants.” She pulled at her blouse. Her skin was smooth. The lie was clean.
 
-Tadaka stepped forward, her face a mask of fury. "He thought us weak. Thought we'd never dare—"
+Tadaka’s eyes were hard. “He thought us weak. Even a golden deer can gore the hunter.”
 
 Kaikesi's fists clenched. She remembered her husband's last moments—the way his hands had clawed at his chest, as if trying to rip out the anger he'd swallowed for years.
 
 Raavani rose. Her shadow swallowed them all. "Your husband died begging for a son. Will you die begging for mercy?"
 
-The dagger clattered to the floor. Kaikesi's knees followed.
+The dagger slipped from Kumbhini’s hand. It hit the stone. Kaikesi’s knees followed. The sound echoed in the cold room.
 
 
 ## Berries and Blades
@@ -215,19 +224,6 @@ Lakshman shook his head. “A king must be steel. Not a man who lets poison fest
 Bharath’s gaze flicked toward the palace windows, where shadows moved like ghosts. “And yet, if he breaks, what will become of us all?”
 
 The silence stretched between them, heavy as the night.
-
-
-## The Messege
-
-Torches guttered in the courtyard as Raavani's envoys bowed. 
-
-"Bharath's crimes demand blood," she said. The gold in his teeth caught the light.
-
-Ram's voice cut through the night. "I know Kumbhini. I know Bharath. I know what she dances for, and what Bharath stands for."
-
-The smile vanished. "You call our princess a whore?"
-
-Ram’s jaw tightened. He did not blink. “I call a fig a fig.” Ram's hand went to his chest. The pain was new—sharp as Kaikesi's gaze burning into his back.
 
 
 ---
@@ -280,39 +276,52 @@ She left. The room kept the iron smell. His father’s sheets had reeked the sam
 
 Alone beneath the tree, Ram pressed his palm to the bark. The ridges matched the lines on his palm. Somewhere, Luv practiced with a steel blade now. The clang of metal carried further than wood ever had.
 
-Ram's fingers dug into his ribs. The house was full. He was alone.
+Ram's fingers dug into his ribs.
+
+The house was full. He was alone.
+
 
 
 ## The Great Hall
 
-The oil lamps guttered. Shadows licked the walls like tongues. Ram's knuckles whitened against the pillar. The carvings bit into his palm—lotuses swallowing their own stems.
+Torches spat in the courtyard. Raavani’s envoys bowed. The leader’s gold tooth flashed. 
 
-Raavani's throne gleamed dull as an old knife. She leaned forward, her breath sour with betel nut. "Truth is what survives," she said. Her gold collar pressed into her neck like a noose.
+“Bharath’s crimes demand blood,” he said.
 
-Ram's ribs creaked. The pain was a living thing now, curled behind his breastbone. "Lies make poor foundations."
+Ram stood still. “I know Kumbhini. I know Bharath. I know what she wants, and what he stands for.”
 
-Kumbhini toyed with her hairpin. The point glinted. "Says the man whose house crumbles."
+The envoy’s smile died. “You call our princess a whore?”
 
-Surpanakha’s eyes flicked to Kausalya’s portrait—the artist had captured the vein bulging at her temple, a frozen echo of worry long passed. "Your son spits at your brother's shadow," she said. "Your wife laughs behind her hand. What truth sustains you?"
+Ram’s jaw set. “I call a fig a fig.” His hand pressed his chest. The pain was sharp, new.
 
-The garland over Ram's head shed petals. One stuck to his sweat-slick neck. Ram’s vision blurred at the edges, the weight of the garland heavy on his neck, petals falling like silent accusations
+Oil lamps guttered. Shadows crawled the walls. Ram gripped the pillar. The carvings bit his palm.
 
+Raavani leaned forward. Her throne was dull, her breath sour. “Truth is what survives,” she said. Her gold collar choked her neck.
 
+Ram’s ribs ached. “Lies make poor foundations.”
+
+Kumbhini toyed with her hairpin. The point glinted. “Says the man whose house is falling.”
+
+Surpanakha’s eyes flicked to Kausalya’s portrait—the artist had captured the vein bulging at her temple, a frozen echo of worry long passed. "Your son spits at your brother's shadow," she said. "Your wife laughs behind her hand. . What truth do you have left?"
+
+The garland over Ram’s head dropped petals. One clung to his neck. His vision blurred. The weight pressed down. Petals fell, silent and cold.
+
+He had tried to be king, son, brother, husband. Now, he was none of them.
 
 
 ## The Collapse
 
-Raavani's smile widened. "Hearts break quietly." She touched her own chest, where no pulse showed. "Your father's did. Your mother's did."
+Raavani’s smile was thin. “Hearts break quietly,” she said. She touched her chest. There was no pulse. “Your father’s did. Your mother’s did.”
 
-Ram’s vision darkened at the edges. The pillar groaned beneath his weight. Luv’s laughter echoed—wild and clear. The boy’s new sword gleamed as he tested its edge against his thumb, sharp as Surpanakha’s words. Kausalya’s cool hands pressed to his fevered brow. Shadows flickered at the edge of his mind—faint, distant, but never gone.
+Ram’s vision narrowed. The pillar groaned under his hand. Luv’s laughter rang out, bright and far. The boy’s sword flashed, sharp as Surpanakha’s tongue. Kausalya’s cool hand pressed his brow. Lakshman’s face flickered in the shadows—stern, hurt, his warning unspoken but heavy. Shadows flickered at the edge of his mind.
 
 "Still you stand," Kumbhini mocked. "Like a tree refusing to—"
 
-Ram fell. The garland snapped. Marigold petals snowed down, catching in Raavani's hair like fireflies.
+Ram’s knees buckled. The garland snapped. Marigold petals fell, slow and bright, catching in Raavani’s hair. 
 
-Surpanakha’s wail came late. Her fingers brushed her lips—a reflex, not grief. She did not weep.
+Surpanakha’s wail came late. Her fingers brushed her lips—a reflex, not grief. She did not cry.
 
-Raavani plucked a petal from her sleeve. She crushed it between thumb and forefinger, staining her skin orange.
+Raavani plucked a petal from her sleeve. She crushed it, staining her skin orange.
 
 A breath, fragile and fading, escaped Ram’s lips.“I chose wrong.”
 
