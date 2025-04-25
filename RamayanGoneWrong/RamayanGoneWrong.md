@@ -38,7 +38,7 @@ Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. �
 Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
 
-## Raavani household
+## Raavani Household
 
 Far from Ayodhya, in the shadowed halls, mother of Surpanakha, Raavani sat like a queen on a throne of silence. She looked at her ring,a gift from her mother. 
 
@@ -55,7 +55,7 @@ Kaikesi’s gaze sharpened. “Softness is a lie. Strength is control.”
 The daughters exchanged glances, their unspoken plans weaving like threads in the dark.
 
 
-## At the bank of Sarayu River
+## At the Bank of the Sarayu River
 
 Back in Ayodhya,Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
@@ -230,23 +230,23 @@ The silence stretched between them, heavy as the night.
 
 # Chapter 3: The Heart's Reckoning
 
-## The Gathering of Allies
+## Seeds of Division
 
-In the great hall of a distant province, Surpanakha stood before a gathering of nobles and courtiers. Her smile was a blade wrapped in silk, her voice steady and sure.
+Under the carved pillars of a mandapa, Surpanakha faced the nobles. Her smile was a blade. Her voice cut clean.
 
-“Ram showed me kindness when his own blood turned away,” she told them, eyes scanning the crowd. “Bharath’s coldness, Lakshman’s suspicion, Shanta’s silence—these fractures weaken Ayodhya.”
+“Ram showed me kindness when his own blood turned away,” she said. “Bharath’s coldness. Lakshman’s suspicion. Shanta’s silence. These cracks weaken Ayodhya.”
 
-A murmur of agreement rippled through the assembled faces, some nodding, others exchanging wary glances.
+The crowd shifted. Some nodded. Some looked at the floor.
 
-“A kingdom divided cannot stand,” Surpanakha continued. “We offer a new path—strength through unity under Raavani’s line.”
+“A kingdom divided cannot stand,” Surpanakha continued. “Raavani’s house is Ram’s house now,” Surpanakha said. “Here, he finds loyalty. Here, he finds strength.”
 
-She paused, letting the weight of her words settle. Eyes flickered with hope, fear, and ambition. The seeds of rebellion were sown.
+She paused. The air was thick. The seeds of rebellion took root.
 
-## Whispers in the Halls
+Far away, in Ayodhya’s stone halls, Ram heard the whispers. Courtiers turned away. Their eyes were clouded. Surpanakha’s stories spread, slow and sure.
 
-Ram heard the whispers before he saw the faces. Courtiers turned away, eyes clouded with doubt. Surpanakha’s stories were poison, seeping into every corner.
+Kind to her? Ram thought. Estranged from Bharath and Lakshman? The truth was darker. The walls pressed in. The silence grew.
 
-Kind to her? Ram thought bitterly. Estranged from Bharath and Lakshman? The truth is darker.
+He stood alone. The weight of Ayodhya pressed down. The ground shifted under his feet, like the Sarayu in flood.
 
 ## Midnight Confidant
 
