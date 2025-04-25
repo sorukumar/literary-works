@@ -38,15 +38,15 @@ Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. �
 Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
 
-## Raavani Household
+## Ravani Household
 
-Far from Ayodhya, in the shadowed halls, mother of Surpanakha, Raavani sat like a queen on a throne of silence. She looked at her ring,a gift from her mother. 
+Far from Ayodhya, in the shadowed halls, mother of Surpanakha, Ravani sat like a queen on a throne of silence. She looked at her ring,a gift from her mother. 
 
 Kaikesi, her eldest, stood nearby, her face pale and drawn. The portrait of her late husband hung crooked on the wall, a silent witness to a life ended too soon. His heart had failed him. 
 
 Her younger daughters, Kumbhini and Tadaka, moved around her like restless shadows, their eyes sharp and calculating.
 
-Raavani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has fotgotten us"
+Ravani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has fotgotten us"
 
 Kumbhini smiled, slow, deliberate. “They say Ayodhya is weak. That Ram is soft.”
 
@@ -143,7 +143,7 @@ Whispers had begun. Bharath’s gift was cold. His care, questioned.
 
 ## The Web of Rumors
 
-In the dim light of Raavani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
+In the dim light of Ravani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
 
 Surpanakha crushed a blackberry between her fingers. The juice seeped into her skin like old blood, dark and staining. “The court believes in shadows,” she said, voice low and sharp. “Let them believe Ram’s heart belongs to us now”
 
@@ -162,7 +162,7 @@ The past was never far. It lingered in shadows, shaping the present with silent 
 
 The firelight flickered against cold stone walls. A young Surpanakha sat cross-legged, eyes wide but hardening. 
 
-Raavani’s voice cut through the silence, smooth and sharp as a blade.
+Ravani’s voice cut through the silence, smooth and sharp as a blade.
 
 “Win by any means,” she said, her breath a whisper of steel. “Mercy is a weakness. Power is the only truth.”
 
@@ -170,7 +170,7 @@ She leaned closer, her shadow falling over Surpanakha. “Swords are for men who
 
 Surpanakha nodded, the lesson burning into her like a brand. The world was a battlefield, and she would learn to fight with every shadow and lie.
 
-Alone, Raavani traced the cracked frame of her late mothers’s portrait. Her fingers lingered on the painted eyes—cold, watchful, unyielding.
+Alone, Ravani traced the cracked frame of her late mothers’s portrait. Her fingers lingered on the painted eyes—cold, watchful, unyielding.
 
 “You taught me to survive,” she whispered, voice soft but fierce. “Now I must teach them.”
 
@@ -179,7 +179,7 @@ The weight of the crown pressed heavy on her shoulders, but her resolve was iron
 
 ## The Spider's Web
 
-In the Raavani fortress, shadows clung to the walls like cobwebs. Raavani’s throne groaned as she leaned forward. 
+In the Ravani fortress, shadows clung to the walls like cobwebs. Ravani’s throne groaned as she leaned forward. 
 
 Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
@@ -191,7 +191,7 @@ Tadaka’s eyes were hard. “He thought us weak. Even a golden deer can gore th
 
 Kaikesi's fists clenched. She remembered her husband's last moments—the way his hands had clawed at his chest, as if trying to rip out the anger he'd swallowed for years.
 
-Raavani rose. Her shadow swallowed them all. "Your husband died begging for a son. Will you die begging for mercy?"
+Ravani rose. Her shadow swallowed them all. "Your husband died begging for a son. Will you die begging for mercy?"
 
 The dagger slipped from Kumbhini’s hand. It hit the stone. Kaikesi’s knees followed. The sound echoed in the cold room.
 
@@ -202,7 +202,7 @@ Back in Ayodhya, Ram found Surpanakha crushing blackberries between her fingers.
 
 Luv’s sword struck the bush. A thorn tore his palm. He didn’t flinch.
 
-“Raavani moves against us,” Ram said, voice low.
+“Ravani moves against us,” Ram said, voice low.
 
 Surpanakha licked the juice from her fingers, slow and deliberate. “Walls keep secrets.”
 
@@ -238,7 +238,7 @@ Under the carved pillars of a mandapa, Surpanakha faced the nobles. Her smile wa
 
 The crowd shifted. Some nodded. Some looked at the floor.
 
-“A kingdom divided cannot stand,” Surpanakha continued. “Raavani’s house is Ram’s house now,” Surpanakha said. “Here, he finds loyalty. Here, he finds strength.”
+“A kingdom divided cannot stand,” Surpanakha continued. “Ravani’s house is Ram’s house now,” Surpanakha said. “Here, he finds loyalty. Here, he finds strength.”
 
 She paused. The air was thick. The seeds of rebellion took root.
 
@@ -284,7 +284,7 @@ The house was full. He was alone.
 
 ## The Great Hall
 
-Torches spat in the courtyard. Raavani’s envoys bowed. The leader’s gold tooth flashed. 
+Torches spat in the courtyard. Ravani’s envoys bowed. The leader’s gold tooth flashed. 
 
 “Bharath’s crimes demand blood,” he said.
 
@@ -296,7 +296,7 @@ Ram’s jaw set. “I call a fig a fig.” His hand pressed his chest. The pain 
 
 Oil lamps guttered. Shadows crawled the walls. Ram gripped the pillar. The carvings bit his palm.
 
-Raavani leaned forward. Her throne was dull, her breath sour. “Truth is what survives,” she said. Her gold collar choked her neck.
+Ravani leaned forward. Her throne was dull, her breath sour. “Truth is what survives,” she said. Her gold collar choked her neck.
 
 Ram’s ribs ached. “Lies make poor foundations.”
 
@@ -311,17 +311,17 @@ He had tried to be king, son, brother, husband. Now, he was none of them.
 
 ## The Collapse
 
-Raavani’s smile was thin. “Hearts break quietly,” she said. She touched her chest. There was no pulse. “Your father’s did. Your mother’s did.”
+Ravani’s smile was thin. “Hearts break quietly,” she said. She touched her chest. There was no pulse. “Your father’s did. Your mother’s did.”
 
 Ram’s vision narrowed. The pillar groaned under his hand. Luv’s laughter rang out, bright and far. The boy’s sword flashed, sharp as Surpanakha’s tongue. Kausalya’s cool hand pressed his brow. Lakshman’s face flickered in the shadows—stern, hurt, his warning unspoken but heavy. Shadows flickered at the edge of his mind.
 
 "Still you stand," Kumbhini mocked. "Like a tree refusing to—"
 
-Ram’s knees buckled. The garland snapped. Marigold petals fell, slow and bright, catching in Raavani’s hair. 
+Ram’s knees buckled. The garland snapped. Marigold petals fell, slow and bright, catching in Ravani’s hair. 
 
 Surpanakha’s wail came late. Her fingers brushed her lips—a reflex, not grief. She did not cry.
 
-Raavani plucked a petal from her sleeve. She crushed it, staining her skin orange.
+Ravani plucked a petal from her sleeve. She crushed it, staining her skin orange.
 
 A breath, fragile and fading, escaped Ram’s lips.“I chose wrong.”
 
