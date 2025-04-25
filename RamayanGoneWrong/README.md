@@ -14,13 +14,12 @@
 ## Family and Key Characters
 
 **Kausalya**: Mother of **Ram**
-        * **Ram**: Protagonist, husband of **Supranakha**, father of **Luv**
-            * **Supranakha**: Ram's cunning wife
-            * **Luv**: Son of Ram
-   		* **Lakshman**: Brother
-   		* **Bharath**: Brother
-   		* **Shanta**: Sister
-
+    * **Ram**: Protagonist, husband of **Supranakha**, father of **Luv**
+        * **Supranakha**: Ram's cunning wife
+        * **Luv**: Son of Ram
+    * **Lakshman**: Brother 
+    * **Bharath**: Brother 
+    * **Shanta**: Sister 
 
 **Raavani** (Character details will be revealed in the story)
     * **Kaikesi**: Daughter of Raavani
