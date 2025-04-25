@@ -14,18 +14,20 @@
 ## Family and Key Characters
 
 **Kausalya**: Mother of **Ram**
-    * **Ram**: Protagonist, husband of **Supranakha**, father of **Luv**
-        * **Supranakha**: Ram's cunning wife
-        * **Luv**: Son of Ram
-    * **Lakshman**: Brother 
-    * **Bharath**: Brother 
-    * **Shanta**: Sister 
 
-**Raavani** (Character details will be revealed in the story)
-    * **Kaikesi**: Daughter of Raavani
-    * **Supranakha**: Daughter of Raavani, wife of Ram
-    * **Kumbhani**: Daughter of Raavani
-    * **Tadaka**: Daughter of Raavani
+* **Ram**: Protagonist
+    * **Supranakha**: Ram's cunning wife
+    * **Luv**: Son of Ram
+* **Lakshman**: Brother
+* **Bharath**: Brother
+* **Shanta**: Sister
+
+**Ravani** (Character details will be revealed in the story)
+
+* **Kaikesi**: Daughter of Ravani
+* **Supranakha**: Daughter of Ravani, wife of Ram
+* **Kumbhani**: Daughter of Ravani
+* **Tadaka**: Daughter of Ravani
 
 ## Table of Contents
 1. [Chapter 1: The Unlikely Union](RamayanGoneWrong.md#chapter-1-the-unlikely-union)  
