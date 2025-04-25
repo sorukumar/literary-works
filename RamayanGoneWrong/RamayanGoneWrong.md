@@ -21,21 +21,6 @@ Surpanakha turned away, her smile thin. “And your family’s tongue. Bharath t
 
 Ram’s chest tightened. Bharath had given the sword himself, a gift meant to bind the boy to his uncles.
 
-## The Jewelry Chest
-
-Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
-
-Surpanakha’s eyes flickered to a ruby choker, its stones catching the lamplight like drops of blood.
-
-“You honor me too much,” Surpanakha said softly.
-
-Kausalya clasped the choker around her neck. The metal pressed warm against her skin. “This house is yours now.”
-
-Surpanakha smiled, but it did not reach her eyes. She traced the ruby’s edge. A mother’s love is easy to fool, she thought.
-
-Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. “For Luv’s bride.”
-
-Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
 
 ## Ravani Household
@@ -54,22 +39,56 @@ Kaikesi’s gaze sharpened. “Softness is a lie. Strength is control.”
 
 The daughters exchanged glances, their unspoken plans weaving like threads in the dark.
 
+## Kingdoms on Thread
 
-## At the Bank of the Sarayu River
+In the dim light of Ravani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
+
+Surpanakha crushed a blackberry between her fingers. The juice seeped into her skin like old blood, dark and staining. “The court believes in shadows,” she said, voice low and sharp. “Let them believe Ram’s heart belongs to us now”
+
+Kumbhini’s eyes gleamed in the flickering candlelight. “That he found solace only with us. That Bharath’s loyalty is brittle, Lakshman’s pride fragile, and Shanta’s silence a wound waiting to bleed.”
+
+Tadaka smiled, cold and cruel. “The kingdom will believe what they want to hear. A fractured family is easier to break.”
+
+Surpanakha leaned forward, her voice a whisper but heavy with promise. “We must feed the fire carefully. The more they believe the lie, the easier it will be to claim what is ours.”
+
+The three women exchanged glances, their unspoken plans weaving like threads in the dark.
+
+The past was never far. It lingered in shadows, shaping the present with silent hands.
+
+## Inheritance
+
+Back in Ayodhya, Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
+
+Surpanakha’s eyes flickered to a ruby choker, its stones catching the lamplight like drops of blood.
+
+“You honor me too much,” Surpanakha said softly.
+
+Kausalya clasped the choker around her neck. The metal pressed warm against her skin. “This house is yours now.”
+
+Surpanakha smiled, but it did not reach her eyes. She traced the ruby’s edge. A mother’s love is easy to fool, she thought.
+
+Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. “For Luv’s bride.”
+
+Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
+
+
+## Nightfall at Sarayu
 
 Back in Ayodhya,Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
-Behind him, Lakshman drew his bow. The string creaked.
+Behind him, Lakshman’s bow creaked. The string creaked.
 
-“Surpanakha is spreading lies,” Lakshman said. “Says Ram trusts her family. Says the brothers are at each other’s throats.”
+“Surpanakha says you trust them,” Lakshman muttered. “That we are divided.”
 
-Ram looked up. “You are my life.” He paused. “More than my own.” Lakshman did not answer. He knew.
+“You are my life,” he said, soft as prayer. “More than my own.” Lakshman did not answer. He didn’t need to.
 
-“Time heals,” Ram said. “Only trust and love can fix a broken soul.”
+“Time heals,” Ram added. “Only trust and love can fix a broken soul.”
 
-"Not poison." Lakshman loosed the arrow. It vanished in the swirling water. "You're too trusting."
+"Not poison." Lakshman said, watching it vanish in the swirl.
 
-Ram watched the river swallow the shaft. "And you not enough."
+Ram followed the shaft’s disappearance. The river swallowed it without a sound.
+
+“And you, not enough.”
 
 
 
@@ -96,22 +115,42 @@ Ram’s eyes met hers, searching. “I listen to my heart.”
 Behind the closed door, the palace murmured with secrets. Whispers of doubt, scandal, a king who had chosen the wrong bride.
 
 
-
 ## The Coughing
 
 Blood stained Kausalya’s handkerchief—dark, like crushed hibiscus petals pressed between old pages. Her breath came ragged, each cough a slow unraveling, as if the cells inside her were turning to dust, breaking down quietly, unseen.
 
 She sat by the window, pale light falling on her skin that seemed thinner each day, as if the sickness was eating her from the inside out. 
 
-Ram watched, helpless, feeling the weight of something breaking in the air between them.
+Ram knelt beside her, still as stone.
+He didn’t speak.
+What could he say?
 
-Her fingers found his cheek, cold and trembling. Her eyes held a quiet sorrow, deep and endless.
+Her hand found his face — cold, birdlike fingers trembling against his cheek.
 
-She whispered, voice cracked like dry earth, “You walk a blade’s edge — duty to wife, duty to blood, duty to justice. Cling to one, the others burn you.” Her eyes held him. “ And beware, my son, lies twist even strong minds. Truth is your shield. It breaks easy.”
+“You walk a blade’s edge,” she whispered. “Dharma to Wife. Blood. Justice. Cling to one...”
+Her voice cracked. She coughed again, a deep shudder from the ribs.
+“...and the others will burn you.”
 
-Ram’s heart clenched. Somewhere inside, a part of him was rotting too—his old ideals, the sharp edges of his conscience dulling like forgotten bones buried beneath the soil. He wanted to fight, to hold on, but the decay was slow and patient, creeping through his spirit like a shadow.
+Ram closed his eyes. The room felt too large, like it had let go of something essential.
 
-By dusk, the servants whispered in hushed tones. The queen’s sickness was no secret now. It was a slow rot, a shadow growing in the house—and in Ram’s heart.
+She drew in another breath — shallow, wheezing.
+“And beware,” she said, her eyes on some place far beyond the room. “Lies twist even strong minds. Truth breaks easy.”
+
+He wanted to speak.
+
+Instead, he remembered her younger, scolding him for forgetting a Shloka.“A single shloka from the Upanishad and your tongue trips?”
+
+How strong she’d been then.
+
+Now she leaned into the cushions like they held up what was left of her.
+
+Somewhere in the hall, a servant dropped a plate — the sound sharp as a crack in glass.
+
+By dusk, the whispers had spread.
+
+The queen was dying.
+
+But the shadow that grew in Ram’s heart was quieter than death — it was the feeling of something good turning to ash, and knowing he’d never notice exactly when it vanished.
 
 
 ---
@@ -140,22 +179,6 @@ By dusk, Luv carried a different knife —one Surpanakha'sister had given him. I
 
 Whispers had begun. Bharath’s gift was cold. His care, questioned.
 
-
-## The Web of Rumors
-
-In the dim light of Ravani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
-
-Surpanakha crushed a blackberry between her fingers. The juice seeped into her skin like old blood, dark and staining. “The court believes in shadows,” she said, voice low and sharp. “Let them believe Ram’s heart belongs to us now”
-
-Kumbhini’s eyes gleamed in the flickering candlelight. “That he found solace only with us. That Bharath’s loyalty is brittle, Lakshman’s pride fragile, and Shanta’s silence a wound waiting to bleed.”
-
-Tadaka smiled, cold and cruel. “The kingdom will believe what they want to hear. A fractured family is easier to break.”
-
-Surpanakha leaned forward, her voice a whisper but heavy with promise. “We must feed the fire carefully. The more they believe the lie, the easier it will be to claim what is ours.”
-
-The three women exchanged glances, their unspoken plans weaving like threads in the dark.
-
-The past was never far. It lingered in shadows, shaping the present with silent hands.
 
 
 ## Shadows of the Past
@@ -323,6 +346,6 @@ Surpanakha’s wail came late. Her fingers brushed her lips—a reflex, not grie
 
 Ravani plucked a petal from her sleeve. She crushed it, staining her skin orange.
 
-A breath, fragile and fading, escaped Ram’s lips.“I chose wrong.”
+A breath, fragile and fading, escaped Ram’s lips.
 
-
+“I chose wrong.”
