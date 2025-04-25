@@ -34,7 +34,6 @@
 2. [Chapter 2: The Fractured Bonds](RamayanGoneWrong.md#chapter-2-the-fractured-bonds)  
 3. [Chapter 3: The Heart's Reckoning](RamayanGoneWrong.md#chapter-3-the-hearts-reckoning)  
 
----
 
 
 [Return to all works](../README.md)
