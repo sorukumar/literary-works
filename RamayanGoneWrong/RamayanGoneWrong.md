@@ -31,7 +31,7 @@ Kaikesi, her eldest, stood nearby, her face pale and drawn. The portrait of her 
 
 Her younger daughters, Kumbhini and Tadaka, moved around her like restless shadows, their eyes sharp and calculating.
 
-Ravani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has fotgotten us"
+Ravani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has forgotten us"
 
 Kumbhini smiled, slow, deliberate. “They say Ayodhya is weak. That Ram is soft.”
 
@@ -55,9 +55,14 @@ The three women exchanged glances, their unspoken plans weaving like threads in 
 
 The past was never far. It lingered in shadows, shaping the present with silent hands.
 
+
+---
+
+# Chapter 2: Hope is a Slow Knife
+
 ## Inheritance
 
-Back in Ayodhya, a handful of summers before, Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
+A handful of Summers before, back in Ayodhya, Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
 
 Surpanakha’s eyes flickered to a ruby choker, its stones catching the lamplight like drops of blood.
 
@@ -74,7 +79,7 @@ Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
 ## Nightfall at Sarayu
 
-Back in Ayodhya,Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
+That night Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
 Behind him, Lakshman’s bow creaked. The string creaked.
 
@@ -152,10 +157,10 @@ The queen was dying.
 
 But the shadow that grew in Ram’s heart was quieter than death — it was the feeling of something good turning to ash, and knowing he’d never notice exactly when it vanished.
 
-
 ---
 
-# Chapter 2: The Fractured Bonds
+
+# Chapter 3: Lessons and Lies
 
 ## The Gift
 
@@ -175,10 +180,9 @@ Later, under the neem tree, she buried it.
 
 Ram saw the turned earth at dawn. Touched it. Walked away.
 
-By dusk, Luv carried a different knife —one Surpanakha'sister had given him. Its edge was sharper than a boy needed.
+By dusk, Luv carried a different knife —one Surpanakha's sister had given him. Its edge was sharper than a boy needed.
 
 Whispers had begun. Bharath’s gift was cold. His care, questioned.
-
 
 
 ## Shadows of the Past
@@ -233,6 +237,9 @@ Ram’s calloused hand caught her wrist. Her pulse fluttered beneath his grip, q
 
 “Poor girls,” Surpanakha said, voice soft but edged with something darker. “Though Kumbhini did always enjoy... performances.”
 
+---
+
+# Chapter 4: The Fall Begins
 
 ## Midnight Shadows
 
@@ -249,9 +256,6 @@ Bharath’s gaze flicked toward the palace windows, where shadows moved like gho
 The silence stretched between them, heavy as the night.
 
 
----
-
-# Chapter 3: The Heart's Reckoning
 
 ## Seeds of Division
 
@@ -281,6 +285,12 @@ Hanuman whispered to himself, barely more than breath, “The house may rot, but
 
 That night, as whispers curled like smoke through the halls, Hanuman slipped a folded note beneath Ram’s door. A small act of faith in a world unraveling.
 
+
+---
+
+
+# Chapter 5: The Heart's Reckoning
+
 ## The Night Cough
 
 Ram woke choking. The cloth came away dark. Not like Kausalya’s bright stains—this was the brown of a neglected blade.
@@ -302,7 +312,6 @@ Alone beneath the tree, Ram pressed his palm to the bark. The ridges matched the
 Ram's fingers dug into his ribs.
 
 The house was full. He was alone.
-
 
 
 ## The Great Hall
@@ -334,7 +343,7 @@ He had tried to be king, son, brother, husband. Now, he was none of them.
 
 ## The Collapse
 
-Ravani’s smile was thin. “Hearts break quietly,” she said. She touched her chest. There was no pulse. “Your father’s did. Your mother’s did.”
+Ravani’s smile was thin. “Hearts break quietly,” she said. She touched her chest where a pulse once beat. “Your father’s did. Your mother’s did.”
 
 Ram’s vision narrowed. The pillar groaned under his hand. Luv’s laughter rang out, bright and far. The boy’s sword flashed, sharp as Surpanakha’s tongue. Kausalya’s cool hand pressed his brow. Lakshman’s face flickered in the shadows—stern, hurt, his warning unspoken but heavy. Shadows flickered at the edge of his mind.
 
