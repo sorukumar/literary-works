@@ -57,7 +57,7 @@ The past was never far. It lingered in shadows, shaping the present with silent 
 
 ## Inheritance
 
-Back in Ayodhya, Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
+Back in Ayodhya, a handful of summers before, Kausalya’s hands shook as she pried open the chest. The lid groaned. Inside, a ruby choker lay half-buried under dust—its stones glinting like dried blood.
 
 Surpanakha’s eyes flickered to a ruby choker, its stones catching the lamplight like drops of blood.
 
