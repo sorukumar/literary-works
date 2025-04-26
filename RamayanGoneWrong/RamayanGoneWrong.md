@@ -3,6 +3,17 @@
 *A Novella*  
 
 
+## Table of Contents
+1. [Chapter 1: The Unlikely Union](#chapter-1-the-unlikely-union) 
+2. [Chapter 2: Hope is a Slow Knife](#chapter-2-hope-is-a-slow-knife) 
+3. [Chapter 3: Lessons and Lies](#chapter-3-lessons-and-lies) 
+4. [Chapter 4: The Fall Begins](#chapter-4-the-fall-begins) 
+5. [Chapter 5: The Heart's Reckoning](#chapter-5-the-hearts-reckoning)
+
+
+---
+
+
 # Chapter 1: The Unlikely Union
 
 ## The Courtyard
