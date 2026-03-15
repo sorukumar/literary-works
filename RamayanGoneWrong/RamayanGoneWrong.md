@@ -40,32 +40,17 @@ Far from Ayodhya, in the shadowed halls, mother of Surpanakha, Ravani sat like a
 
 Kaikesi, her eldest, stood nearby, her face pale and drawn. The portrait of her late husband hung crooked on the wall, a silent witness to a life ended too soon. His heart had failed him. 
 
-Her younger daughters, Kumbhini and Tadaka, moved around her like restless shadows, their eyes sharp and calculating.
+Her younger daughter, Kumbhini, moved around her like a restless shadow, her eyes sharp and calculating.
 
-Ravani’s voice was low but firm. “This house is your first love,” she said, her fingers tightening on the armrest. “No man will claim you while I breathe.” "My daughter Supranakha has forgotten us"
+Ravani's voice was low but firm. "This house is your first love," she said, her fingers tightening on the armrest. "No man will claim you while I breathe."
 
-Kumbhini smiled, slow, deliberate. “They say Ayodhya is weak. That Ram is soft.”
+She turned toward the window. "My daughter Surpanakha has forgotten us."
 
-Kaikesi’s gaze sharpened. “Softness is a lie. Strength is control.”
+Kumbhini smiled, slow, deliberate. "They say Ayodhya is weak. That Ram is soft."
 
-The daughters exchanged glances, their unspoken plans weaving like threads in the dark.
+Kaikesi's gaze sharpened. "Softness is a lie. Strength is control." She turned toward the window, her profile pale against the dark. "The kingdom will believe what it wants. A fractured family is easier to break than a throne."
 
-## Kingdoms on Thread
-
-In the dim light of Ravani’s chamber, Surpanakha sat with Kumbhini and Tadaka. The air was thick with the scent of crushed berries and whispered schemes.
-
-Surpanakha crushed a blackberry between her fingers. The juice seeped into her skin like old blood, dark and staining. “The court believes in shadows,” she said, voice low and sharp. “Let them believe Ram’s heart belongs to us now”
-
-Kumbhini’s eyes gleamed in the flickering candlelight. “That he found solace only with us. That Bharath’s loyalty is brittle, Lakshman’s pride fragile, and Shanta’s silence a wound waiting to bleed.”
-
-Tadaka smiled, cold and cruel. “The kingdom will believe what they want to hear. A fractured family is easier to break.”
-
-Surpanakha leaned forward, her voice a whisper but heavy with promise. “We must feed the fire carefully. The more they believe the lie, the easier it will be to claim what is ours.”
-
-The three women exchanged glances, their unspoken plans weaving like threads in the dark.
-
-The past was never far. It lingered in shadows, shaping the present with silent hands.
-
+The daughters exchanged glances. The silence needed no words.
 
 ---
 
@@ -87,12 +72,25 @@ Kausalya’s breath hitched. She pressed a bracelet into Surpanakha’s palm. �
 
 Surpanakha’s thumb brushed the cold metal. A pawn’s ransom, she thought.
 
+## Kingdoms on Thread
+
+In the dim light of Ravani's chamber, Surpanakha sat with Kumbhini. The air was thick with the scent of crushed berries and whispered schemes.
+
+Surpanakha crushed a blackberry between her fingers. The juice seeped into her skin like old blood, dark and staining. "The court believes in shadows," she said, voice low and sharp. "Let them believe Ram's heart belongs to us now."
+
+Kumbhini's eyes gleamed in the flickering candlelight. "That he found solace only with us. That Bharath's loyalty is brittle, Lakshman's pride fragile, and Shanta's silence a wound waiting to bleed."
+
+Surpanakha leaned forward, her voice a whisper but heavy with promise. "We must feed the fire carefully. The more they believe the lie, the easier it will be to claim what is ours."
+
+The two women exchanged glances, their unspoken plans weaving like threads in the dark.
+
+The candle between them burned down to its collar. Neither woman moved to replace it.
 
 ## Nightfall at Sarayu
 
 That night Sarayu ran thick with mud. Ram knelt and scrubbed his hands in the cold water. The silt stung his nails.
 
-Behind him, Lakshman’s bow creaked. The string creaked.
+Behind him, Lakshman's bowstring creaked.
 
 “Surpanakha says you trust them,” Lakshman muttered. “That we are divided.”
 
@@ -114,7 +112,7 @@ The evening meal was quiet. Kausalya sat apart, watching Surpanakha with a mix o
 
 Bharath and Lakshman ate in silence. Their plates held the same food, but Surpanakha poured spiced buttermilk for Ram and water for the others.
 
-Shanta traced circles in her rice. Her face was unreadable.
+Shanta traced circles in her rice — slow, closed circles, each one finished before she began the next. Her face was unreadable, but her hands were not. Near the end of the meal, she rose without a word and spooned the remaining ghee rice into Ram's bowl — quiet and unhurried.
 
 Later, in the dim room, Surpanakha spoke softly to Ram.
 
@@ -127,6 +125,8 @@ She leaned close. Her breath smelled of jasmine and something sharp.
 “Your brothers think you weak. Lakshman doesn't respect you. Bharath is eyeing the crown.”
 
 Ram’s eyes met hers, searching. “I listen to my heart.”
+
+Ram said nothing more. He had tried words — careful ones, true ones — and watched them pass through her like light through water, bending but leaving no mark. There was nothing left to explain. She would do what she had always meant to do. He lay still in the dark, and so did she, and the distance between them was not the distance of a quarrel but of a conclusion.
 
 Behind the closed door, the palace murmured with secrets. Whispers of doubt, scandal, a king who had chosen the wrong bride.
 
@@ -160,6 +160,8 @@ How strong she’d been then.
 
 Now she leaned into the cushions like they held up what was left of her.
 
+He had knelt like this before — at his father's bedside, in the year before Dasharatha died. The sheets had smelled the same then: iron and something older, like wood going soft inside. He had thought he understood grief then. He had not understood anything.
+
 Somewhere in the hall, a servant dropped a plate — the sound sharp as a crack in glass.
 
 By dusk, the whispers had spread.
@@ -189,9 +191,11 @@ Later, under the neem tree, she buried it.
 
 "Gifts are debts," she told Luv. "He’ll collect."
 
-Ram saw the turned earth at dawn. Touched it. Walked away.
+Ram found the turned earth at dawn — a dark seam in the dry ground where the dagger had been, the soil still loose and cold, not yet hardened by the morning air, which meant she had done it recently, in the dark, while he slept beside her. He pressed two fingers into it. The hole was the length of a man's forearm. The shape of absence is always specific, he thought. He felt a pressure behind his sternum — not pain, not quite, just weight, like a hand pressing flat against his chest from the inside. He breathed slowly until it passed. He straightened, brushed the soil from his fingers, and asked himself whether digging up the truth would simply bury them faster.
 
-By dusk, Luv carried a different knife —one Surpanakha's sister had given him. Its edge was sharper than a boy needed.
+He walked away.
+
+By dusk, Luv carried a different knife — one Surpanakha's sister had given him. Its edge was sharper than a boy needed.
 
 Whispers had begun. Bharath’s gift was cold. His care, questioned.
 
@@ -217,7 +221,7 @@ The weight of the crown pressed heavy on her shoulders, but her resolve was iron
 
 ## The Spider's Web
 
-In the Ravani fortress, shadows clung to the walls like cobwebs. Ravani’s throne groaned as she leaned forward. 
+In the Ravani fortress, the stone itself seemed to breathe decay — damp and old, the smell of camphor failing to mask what lay beneath: the rot in the timber joints, the water that had worked through the mortar for decades and left dark stains down every wall. The torches burned low and sullen, their light doing nothing clean, casting the carved pillars in shapes that shifted when you weren't looking directly at them. Ravani's throne groaned as she leaned forward.
 
 Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
@@ -225,7 +229,7 @@ Her voice, like Surpanakha’s, was a blade wrapped in silk.
 
 Kumbhini's laugh shattered the silence. She twirled a dagger between her fingers. “Bharath thinks he can touch what he wants.” She pulled at her blouse. Her skin was smooth. The lie was clean.
 
-Tadaka’s eyes were hard. “He thought us weak. Even a golden deer can gore the hunter.”
+Kumbhini's eyes slid sideways. "Let him think us weak," she said softly. "The golden deer chooses its own hunter."
 
 Kaikesi's fists clenched. She remembered her husband's last moments—the way his hands had clawed at his chest, as if trying to rip out the anger he'd swallowed for years.
 
@@ -236,7 +240,7 @@ The dagger slipped from Kumbhini’s hand. It hit the stone. Kaikesi’s knees f
 
 ## Berries and Blades
 
-Back in Ayodhya, Ram found Surpanakha crushing blackberries between her fingers. The dark juice seeped down her wrists, staining her skin like old blood—an echo of the queen’s handkerchief, pressed tight in memory. The scent was sharp, sour, like secrets rotting beneath the surface.
+Back in Ayodhya, Ram found Surpanakha crushing blackberries between her fingers. The dark juice seeped down her wrists, staining her skin like old blood. The scent was sharp, sour, like secrets rotting beneath the surface.
 
 Luv’s sword struck the bush. A thorn tore his palm. He didn’t flinch.
 
@@ -247,14 +251,44 @@ Surpanakha licked the juice from her fingers, slow and deliberate. “Walls keep
 Ram’s calloused hand caught her wrist. Her pulse fluttered beneath his grip, quick and uneven. “She claims Bharath assaulted her daughters.”
 
 “Poor girls,” Surpanakha said, voice soft but edged with something darker. “Though Kumbhini did always enjoy... performances.”
-
+Ram released her wrist. He said nothing. There was a tightness at the base of his throat — not anger, not grief — something that had been building so long it had become structural, load-bearing. He swallowed it. It went down slow and settled in his chest like a cold stone.
 ---
 
 # Chapter 4: The Fall Begins
 
+## Seeds of Division
+
+The mandapa was full when Surpanakha rose to speak. No announcement had been made. The nobles came because word travels faster than summons in a court whose walls have ears and whose doors no longer close all the way.
+
+She did not stand at the center. She stood slightly to one side — the way a woman stands when she wants the room to think the words are arriving naturally, unplanned. The torches caught her well.
+
+"Ram showed me kindness," she began, her voice low and intimate, as if each man in the hall were the only one hearing it, "when his own blood had turned away from me." She let that settle. "You know how Bharath speaks to those who are not of his blood. You have seen Lakshman's face when I enter a room. And Shanta —" she paused, as if the name itself caused her pain — "you know her silence as well as I do."
+
+A minister named Dravit, who had served Dasharatha before Ram, shifted his weight from one foot to the other. He did not nod. He looked at the floor. In the old court, looking at the floor had been a sign of respect. Here, it meant something else.
+
+"A kingdom reveals itself in how it treats those it has no obligation to protect," she continued. "Ram's family closes its fists around its loyalties and lets nothing through. But Ram himself —" her voice softened — "Ram opened his hand."
+
+She did not name Ravani's house directly. She did not need to. The implication settled over the room like smoke from a fire in an adjacent room — imperceptible at first, then impossible to ignore, and by the time you noticed it, you were already breathing it.
+
+An elder merchant, Somesh, leaned toward the man beside him and whispered something low. The man beside him turned to look at the door.
+
+At the back of the hall, a young guard who had trained under Bharath took one step sideways — just one — out of the torchlight. A small movement. The size of a verdict.
+
+Surpanakha finished quietly. She did not wait for the silence to break. She stepped down before it could, and walked out without looking back.
+
+---
+
+In Ayodhya's stone halls, Ram heard the whispers before the sun had moved a hand's width. Courtiers turned when he passed, the way people turn from something they have collectively agreed to find embarrassing. Their eyes did not go hard — that would have been easier. They went careful.
+
+*Kind to her? Estranged from Bharath and Lakshman?* The truth was darker. He knew what had been laid down in that room, and he knew he could not lift it without proving her right.
+
+The walls pressed in. The silence grew.
+
+He stood alone. The weight of Ayodhya pressed down. The ground shifted under his feet, like the Sarayu in flood.
+
 ## Midnight Shadows
 
-Later, beneath the cold moonlight, Lakshman and Bharath stood in the quiet courtyard. The night air was thick with unspoken fears.
+Later, beneath the cold moonlight, Lakshman and Bharath stood in the outer courtyard where the flagstones still held the faint memory of the day's heat, though the warmth itself had long gone. Somewhere in the inner wing, Luv's practice blade rang against a wooden post — each strike carrying further in the silence than it would have in daylight. Torchlight pooled in the archways but did not reach the two men.
 
 “Ram is too soft,” Lakshman said, voice barely above a whisper. “He sees the world through a veil of mercy. That will be our undoing.”
 
@@ -268,23 +302,20 @@ The silence stretched between them, heavy as the night.
 
 
 
-## Seeds of Division
+## The Closed Fist
 
-Under the carved pillars of a mandapa, Surpanakha faced the nobles. Her smile was a blade. Her voice cut clean.
+That night, alone in his chamber, Ram coughed once into his palm. The sound was small — the kind a man makes when he thinks no one is listening.
 
-“Ram showed me kindness when his own blood turned away,” she said. “Bharath’s coldness. Lakshman’s suspicion. Shanta’s silence. These cracks weaken Ayodhya.”
+He looked at what the cloth held. Dark. The same brown he had seen on his mother's handkerchief, on his father's sheets. The body keeps its own calendar, he thought. It marks the years you don't.
 
-The crowd shifted. Some nodded. Some looked at the floor.
+He folded the cloth so the stain faced inward. He set it on the windowsill. He did not call for water. He did not call for anyone.
 
-“A kingdom divided cannot stand,” Surpanakha continued. “Ravani’s house is Ram’s house now,” Surpanakha said. “Here, he finds loyalty. Here, he finds strength.”
+Below, the courtyard was empty. Luv's practice post stood alone in the torchlight, its wood gouged and worn from a thousand strikes that had solved nothing.
 
-She paused. The air was thick. The seeds of rebellion took root.
+Ram pressed his fist against his sternum and held it there until the tightness passed.
 
-Far away, in Ayodhya’s stone halls, Ram heard the whispers. Courtiers turned away. Their eyes were clouded. Surpanakha’s stories spread, slow and sure.
+It passed. It always passed. That was the worst of it — that it kept passing, and he kept living, and the distance between what he was and what he had meant to be kept widening without making a sound.
 
-Kind to her? Ram thought. Estranged from Bharath and Lakshman? The truth was darker. The walls pressed in. The silence grew.
-
-He stood alone. The weight of Ayodhya pressed down. The ground shifted under his feet, like the Sarayu in flood.
 
 ## Midnight Confidant
 
@@ -315,10 +346,10 @@ Surpanakha entered without sound. She held a cup of neem tea—the same bitter b
 Ram wiped his mouth. "Dead men sleep."
 
 She left. The room kept the iron smell. His father’s sheets had reeked the same.
-
+Near the door, a folded note lay on the stone floor where it had been pushed under. He did not pick it up. He did not know yet that it was there.
 ## The Neem Tree
 
-Alone beneath the tree, Ram pressed his palm to the bark. The ridges matched the lines on his palm. Somewhere, Luv practiced with a steel blade now. The clang of metal carried further than wood ever had.
+Alone beneath the tree, Ram pressed his palm to the bark. The ridges matched the lines on his palm — both carved by time, both worn into their shapes by the slow insistence of weather and obligation. He had once believed that Dharma was a road, narrow but clear, and that a good man needed only to find it and follow. He understood now that it was not a road. It was a room. And the room had many doors, each one labeled with a duty — son, king, brother, husband, father — and each door, when opened, led not outward but into another room, and the rooms grew smaller, and the air thinner. Somewhere behind him, Luv's steel rang against stone — clean and purposeful, the sound of a boy who still believed that edges solved problems.
 
 Ram's fingers dug into his ribs.
 
